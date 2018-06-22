@@ -7,7 +7,7 @@ tag:
 
 ---     
 
-![image](https://github.com/darling9801/darling9801.github.io/raw/master/7.jpg)
+![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1529645003259&di=dd474403b88bfe0ca6fdceb05fd89ca9&imgtype=0&src=http%3A%2F%2Fimg4.duitang.com%2Fuploads%2Fitem%2F201606%2F25%2F20160625194127_wzZjr.jpeg)
 
   住在四号普里怀特街的杜斯利先生及夫人，非常骄傲地宣称自己是十分正常的人。但是他们最不希望见到的就是任何奇怪或神秘故事中的人物，因为他们对此总是嗤之以鼻。
     杜斯利先生是一家叫作格朗宁斯的钻机工厂的老板。他非常肥壮、结实，几乎肥到没有颈根，但却有一把大胡子。杜斯利夫人则非常苗条，一头金发。她的颈根有常人的两倍那么长，这使得她整天伸长脖子透过花园围栏去偷窥邻居家的动静变得非常容易。杜斯利夫妇有个儿子叫做达德里。在他们眼中，这世界上再没有比达德里更棒的男孩了。
